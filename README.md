@@ -1,0 +1,1 @@
+# Truss_design_statics_2020_CAD
